@@ -1,11 +1,7 @@
 
 <br/>
 ///
-UPDATE TÊN MIỀN MỚI: https://saptetroi.tk
+inf: fb.com/bienn05
 ///
 
 
-
-
-
-TYM: https://heart.saptetroi.tk/
